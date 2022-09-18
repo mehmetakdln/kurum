@@ -1,0 +1,2 @@
+# kurum
+Mavi tik 
